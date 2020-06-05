@@ -18,6 +18,29 @@ remember. But we humans are not her only child. Every life playing on her lap ar
 children. Mother Earth has provided each and every life with the same amount of love
 and care. She provided them shelter and other basic needs.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+![Mother earth](https://1.bp.blogspot.com/-HwFhWPBDT50/XoclNfAKJLI/AAAAAAAA8s0/YZm4d0I4bK8Y4WfMBHKVSm089XbWxA6LgCLcBGAsYHQ/s1600/Gaia.jpg)
+
 I think Mother Earth has been dreaming for the day 
 when her children would care and provide her with the love she had given to them.
 But that dream was broken by humans. Less care about Mother Earth and more does 
@@ -25,17 +48,77 @@ not care anything about her. We have polluted the environment and endanger the  
 life living on the lap of Mother Earth to fulfill our desires. But we should remember
 that by destroying Mother Earth, we destroy ourselves.
       
-      Now, Mother Earth would have thinked  why she had let human beings play on lap. 
+   Now, Mother Earth would have thinked  why she had let human beings play on lap. 
 They have not just endangered themselves but other  life playing on her lap.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+![Animals](https://image.shutterstock.com/image-photo/large-group-african-safari-animals-260nw-1512277061.jpg)
        
 Therefore, Mother Earth would have thinked to cure and heal herself from the
 destruction caused by human beings by removing them from her lap or by making them suffer.
 Many may argue but I think that Mother Earth is going to heal herself by removing humans from
 her lap through Coronavirus. Due to this,the pollution has decreased to a great level.
-     We should now try to repair the destruction caused to Mother Earth. We should love her and
-     care for all other lives playing on her lap. This is the only way for us to be Forgiven by Mother
-     Earth.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+![The cry](https://thesilentecocide.files.wordpress.com/2015/06/earth-goddess.jpg)
+     
+   We should now try to repair the destruction caused to Mother Earth. We should love her and
+ care for all other lives playing on her lap. This is the only way for us to be Forgiven by Mother
+ Earth.
 Here what is your choice?
 Thank you for visiting my website.
+
+
+
+
+
 
 
